@@ -68,3 +68,13 @@ What happens if we reveal ourselves?
 Selection of works produced in mentoring workshop with Antoine D’Agata, Berlin April/May 2023.
 
 [@klebeflaeche](https://www.instagram.com/klebeflaeche/)
+
+#### Lukas Szklarczyk
+##### Title:
+Urban Playgrounds
+##### Description:
+Most of the time we want what we can't have. Children want to play where they shouldn't. They build their own creative urban playgrounds in places that are prohibited or dangerous. It goes from playing football in areas where they are too loud and could break windows or even underground subway stations. They try to touch driving trains with their hands and like the way their fingers get black from the dirt on the train.
+
+In our society children should only play in places that are designed for them: official Playgrounds, football pitches or where they don't annoy adults with their loud noises and creativity.
+
+But kids don't want to be restricted in their games. They want to be rebelious, get dirty ,be loud and play wherever it's forbidden.
