@@ -25,3 +25,6 @@ People gather around, their faces alive with excitement and anticipation. The ai
 This photograph encapsulates the essence of celebration, unity, and the joyous spirit that permeates festive occasions. It illustrates the harmonious blend of cultural traditions and the power of collective participation in creating shared experiences. As we gaze upon this image, we are reminded of the interconnectedness of humanity and the universality of the human desire to come together in celebration.
 
 This photograph showcases how our diverse cultural celebrations provide a playground for expressing our shared humanity. It reminds us that regardless of our individual backgrounds and traditions, we all possess an innate capacity for celebration, curiosity, and the unifying experience of joy. It invites us to embrace the spirit of celebration in our own lives, fostering a sense of playfulness, wonder, and reverence for the richness of cultural diversity that exists within our global playground.
+
+Chinatown - Bangkok, Thailand
+February 2023
