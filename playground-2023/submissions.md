@@ -34,3 +34,35 @@ February 2023
 Unbenannt, 2023
 ##### Description:
 Paulina wearing Bettina Kreb Jewelry and Fernando Boots. The images were shot on Ilford FP4 Plus black-and-white film with Kiev88 medium format camera in our collectives studio as well as developed in our lab. A 1/3 NFT of the contact sheet sold for 0.0085 ETH (~175 €) minted in December 2022 via [manifold.xyz](manifold.xyz)
+
+#### Sina Mühlbauer
+##### Title:
+Unmasked
+##### Description:
+I’m in a state of delirium, somewhere between pure joy and obsession. I haven’t slept much these last few days. My head is buzzing and I’m close to complete exhaustion. I don’t accept the limits of my body right now. I keep pushing. “Don’t forget to take care of yourself”, you often say. I barely listen.
+
+“What do you want to express? What’s the message you want to convey?”
+Antoine asks me again, gently. He is probing. He has to.
+I don’t know what to say. And smile it off.
+But I know he is hitting a nerve.
+
+Social masking is defined as the process in which a person hides parts of themselves in plain sight. Often adopted subconsciously, it aims to present a version of oneself that fits in while suppressing what is perceived as socially or culturally inappropriate, against the norm, or “wrong”.
+
+The authentic self, one's wishes and needs, thoughts, or emotions are often disguised in an attempt to feel loved and accepted.
+
+A danse macabre of secrets in step.
+A whirling and spinning of concealed selves with carefully constructed stories.
+At times, aren’t we all playing a role?
+
+Roleplay…
+“Be good. Just adapt, … shapeshift!”
+
+What happens if we reveal ourselves?
+
+And dive into a realm
+far underneath the flesh
+To create spaces where perception is malleable and boundaries dissolve,where new connections are free to emerge,curiosity and wonder.
+
+What happens if we reveal ourselves?
+
+Selection of works produced in mentoring workshop with Antoine D’Agata, Berlin April/May 2023.
