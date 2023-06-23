@@ -94,3 +94,11 @@ As an adult, I have a fairly constructed vision of gender. My nieces allow me to
 Evgeniy Kazannik is a visual artist working predominately with analogue printing techniques. He studied photography at the London College of Communication (University of the Arts London) and worked as a commercial photographer for over 15 years, with work published in the Guardian, FT, Wire, Wax Poetics, NME, XLR8R and others. He moved away from working with traditional camera techniques in 2019 and started developing a new analogue process instrumenting Lumen Printing and Photogram among others.
 
 Utilizing elements of analogue printing, collage, and tape, Kazannik's artistic works inhabit a space that intersects early photograms and constructivist art, occasionally drawing inspiration from orthodox iconography. Displaying a playful sensibility, his creations explore the boundaries of these art forms, pushing the limits of experimentation and expression.
+
+#### Andreas Stueckl
+##### Title:
+Stardust
+##### Description:
+I have delved deep into the mystical connection between chemical reactions and photographic paper, and from the abyssal void of pitch-black overexposure, I witness the emergence of new life, new dimensions,new galaxies, each a unique creation beyond replication. This alchemical process culminates in a hybrid form of art, for the worlds I conceive are mere square centimeters in size. To amplify their enigmatic aura, I digitize these microcosms and magnify them to unlock their full, abstract potential.
+
+The reference to the theme "Playground" is quite clear, as I use various chemical cocktails to bring a black-developed photographic paper back to life. The photo paper itself is my "playground“.
