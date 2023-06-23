@@ -80,3 +80,17 @@ In our society children should only play in places that are designed for them: o
 But kids don't want to be restricted in their games. They want to be rebelious, get dirty ,be loud and play wherever it's forbidden.
 
 [@der_habitus](https://www.instagram.com/der_habitus/)
+
+#### Szymon Stepniak
+##### Description:
+When I think of a play, I see an action, entertainment, performance, happening. My first connotation is children- young people. I now have the pleasure of accompanying as an uncle two girls growing up. Thanks to them, I am reacquainting myself with games that, from a contemporary perspective, I see critically and relate to my experience.
+
+I have noticed that gender gives them a whole spectrum of play- it is performed (mostly felinity in their particular case). It's also pa kind of a joke, because they don't feel they are women yet, but they act it out-they put lipstick on themselves, they wash their clothes. Being a woman, in this case, seems to be a status to which one must first grow up and earn it for oneself.
+
+As an adult, I have a fairly constructed vision of gender. My nieces allow me to look at gender as something fluid, as a playing field.
+
+#### Evgeniy Kazannik
+##### Description:
+Evgeniy Kazannik is a visual artist working predominately with analogue printing techniques. He studied photography at the London College of Communication (University of the Arts London) and worked as a commercial photographer for over 15 years, with work published in the Guardian, FT, Wire, Wax Poetics, NME, XLR8R and others. He moved away from working with traditional camera techniques in 2019 and started developing a new analogue process instrumenting Lumen Printing and Photogram among others.
+
+Utilizing elements of analogue printing, collage, and tape, Kazannik's artistic works inhabit a space that intersects early photograms and constructivist art, occasionally drawing inspiration from orthodox iconography. Displaying a playful sensibility, his creations explore the boundaries of these art forms, pushing the limits of experimentation and expression.
