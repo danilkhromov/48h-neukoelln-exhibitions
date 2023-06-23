@@ -35,7 +35,7 @@ Unbenannt, 2023
 ##### Description:
 Paulina wearing Bettina Kreb Jewelry and Fernando Boots. The images were shot on Ilford FP4 Plus black-and-white film with Kiev88 medium format camera in our collectives studio as well as developed in our lab. A 1/3 NFT of the contact sheet sold for 0.0085 ETH (~175 €) minted in December 2022 via [manifold.xyz](manifold.xyz)
 
-#### Sina Mühlbauer
+#### Sina Muehlbauer
 ##### Title:
 Unmasked
 ##### Description:
