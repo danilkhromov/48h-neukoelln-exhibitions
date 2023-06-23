@@ -66,4 +66,5 @@ To create spaces where perception is malleable and boundaries dissolve,where new
 What happens if we reveal ourselves?
 
 Selection of works produced in mentoring workshop with Antoine D’Agata, Berlin April/May 2023.
+
 [@klebeflaeche](https://www.instagram.com/klebeflaeche/)
